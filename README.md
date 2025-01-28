@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 ¡Hola! Soy Fabricio Martinez, un estudiante de la Tecnicatura en Programación en la UTN-FRSR 🎓. Con  20 años y originario de Mendoza, Argentina 🇦🇷, mi viaje en el mundo de la programación está recién comenzando...<br><br>💬 Siempre estoy abierto a nuevas conexiones y colaboraciones, así que no dudes en contactarme. ¡Juntos podemos hacer que el mundo de la programación sea aún más emocionante!<br><br>¡Gracias por visitar mi perfil! 🙌
+🚀 ¡Hola! Soy Fabricio Martinez, estudiante de la Tecnicatura en Programación en la UTN-FRSR 🎓. Con  21 años y originario de Mendoza, Argentina 🇦🇷, mi viaje en el mundo de la programación está recién comenzando...<br><br>💬 Siempre estoy abierto a nuevas conexiones y colaboraciones, así que no dudes en contactarme. ¡Juntos podemos hacer que el mundo de la programación sea aún más emocionante!<br><br>¡Gracias por visitar mi perfil! 🙌
 
 
 ## 🌐 Socials:
